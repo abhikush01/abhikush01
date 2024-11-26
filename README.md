@@ -10,7 +10,7 @@
 
 ---
 
-🌐 **Resume**: [Link](https://drive.google.com/file/d/10Kq11bOrE9qzY-3ckk85v1ZhrDhb32M1/view?usp=drive_link)
+🌐 **Resume**: [Link](https://drive.google.com/file/d/1urhdDJoOw1QcdseEx508r0IwXIVazkTp/view?usp=drive_link)
 
 ---
 
